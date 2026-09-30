@@ -1,2 +1,2 @@
-Пошта: team@uni.edu
+Пошта: team@uni.edu (Буй)
 Група: З-42
